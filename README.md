@@ -1,3 +1,0 @@
-# neliieser-D
-zdr
-mdr 
